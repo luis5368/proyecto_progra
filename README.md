@@ -1,2 +1,6 @@
-# Joshua
-Actividad 1 Joshua Alexandro Lopez Gutierrez 7691-22-3915 Mariano Galvez cede boca del monte ING en sistemas semestre 4 
+# Luis Fernando Ramirez de Leon
+Actividad 1
+7691-22-5025
+Mariano Galvez Sede boca del monte 
+ING en sistemas y ciencias de la comunicacion
+IV semestre
